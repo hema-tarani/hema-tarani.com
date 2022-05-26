@@ -1,2 +1,2 @@
-# subodh.dev
-Subodh Ghulaxe
+# hema-tarani.com
+Hema Tarani
